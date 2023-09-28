@@ -16,6 +16,9 @@ Boissons (Felix)
 - Vin Rouge
 
 Liste de musique
+- Idols (Yaosobi)
+- Jackpot (Alan Walker)
+- School (Supertramp)
+- Toxic Britney Spears
 - Billie Jean
-- Smooth Criminal
 - Thriller
